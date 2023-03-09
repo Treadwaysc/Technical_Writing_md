@@ -18,9 +18,9 @@ Growing up I was always on a sports team. I played baseball, soccer, and at one 
 
 ---
 ### Ingredients
-*Peanut Butter with Honey*
-*Strawberry Jelly(flavor is up to chef).*
-*White Bread(only white bread will work).*
+* Peanut Butter with Honey
+* Strawberry Jelly(flavor is up to chef).
+* White Bread(only white bread will work).
 
 ---
 
