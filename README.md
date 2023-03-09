@@ -1,5 +1,7 @@
 # Gameday PBJ
 
+![PBJ Stock Photo](istockphoto-454170501-1024x1024.jpg)
+
 ##### Cook time
 * approx. 2 minutes per sandwich.
 
